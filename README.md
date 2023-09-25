@@ -5,5 +5,5 @@ Anggota :
 Muhammad Bintang (Ketua)
 Mia Nurhaliza
 Cakra Ardhana
-Ihsano Mulya
+Ikhsano Mulya
 Gerry Novazy Binjari Putra
